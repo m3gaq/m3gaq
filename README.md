@@ -1,1 +1,1 @@
-# Команад MegaQuant!
+# Команда MegaQuant!
